@@ -14,9 +14,14 @@ I met Professor Diffie "who won the 2015 Turing Award for fundamental contributi
 
 ![prof-diffi](images/CPC2.jpg?raw=true " Professor Diffie !! ")
 
+I also met He Yi, the co-founder of Binance. In her speech she gave a analogy between Crypto-currency trend to a religion, she also mentioned Satoshi Nakamoto to explain the theory. 
 
 ![binnance-cofounder](images/CPC1.jpg?raw=true " Binnance cofounder !! ")
 
+
+Exchanges who were present: Binance, Bittrex, Coinone, Kraken.
+
+We also had Larry Sanger: Co-founder of Wikipedia, Eric Ly: Co-founder of Linkedin in the panel. 
 
 Conclusion:
  
